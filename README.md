@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning Html
 - 👯 I’m looking to collaborate on Fun projects
 - 🤔 I’m looking for help with Coding projects
-- 💬 Ask me about East african buses
+- 💬 Ask me about East African Buses
 - 📫 How to reach me: enriquemangi47@gmail.com
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Jurgen Klopp is my greatest inspiration
